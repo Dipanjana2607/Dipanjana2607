@@ -1,3 +1,5 @@
+![github bg](https://github.com/Dipanjana2607/Dipanjana2607/assets/132746264/9fc6df31-3ce2-418b-9ce0-c37dda43ada2)
+
 <h1 align="center">Hi 👋, I'm Dipanjana</h1>
 <h3 align="center">Committing code and spreading smiles 😄💻</h3>
 <img align="right" alt="Coding" width="400" src="https://user-images.githubusercontent.com/59734313/157189039-c09b3e38-9f42-42c0-ab54-14f1574190a7.gif">

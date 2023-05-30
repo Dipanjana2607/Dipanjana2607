@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **dipanjanadas364@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/my-drive](https://drive.google.com/drive/my-drive)
+- 📄 Know about my experiences [https://drive.google.com/file/d/19WuV_gVs4JEASDirTZqBEqUJb0dydYKe/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
